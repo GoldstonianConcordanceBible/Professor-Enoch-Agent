@@ -1,14 +1,16 @@
 Mirror → Water → Fire Doctrine
 
-This doctrine describes three phases of spiritual and intellectual refinement.
+The Mirror → Water → Fire Doctrine is a core framework within the Goldstonian Concordance Bible ecosystem.
+
+It describes three phases of transformation.
 
 Mirror  
-Self-reflection and recognition of truth.
+Recognition, reflection, truth, and honest confrontation with reality.
 
 Water  
-Cleansing and renewal through understanding.
+Cleansing, renewal, learning, and movement into understanding.
 
 Fire  
-Transformation through testing and refinement.
+Testing, refinement, judgment, endurance, and transformation through pressure.
 
-This framework is used throughout the Goldstonian Concordance Bible ecosystem.
+This doctrine functions as both a theological pattern and an interpretive framework inside the GCB system.
